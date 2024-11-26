@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @tutoraddicts
-please check - https://github.com/vrianta?tab=repositories My Projects are going to here in future.
+- please check - https://github.com/vrianta?tab=repositories My Projects are going to here in future.
 Keep coding.. 
 
 <!---
